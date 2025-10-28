@@ -1,0 +1,1 @@
+# Applications-of-AI-for-smart-irrigation-in-agriculture
